@@ -1,4 +1,4 @@
-#  
+#  Experience steal a brainrot like never before with instant Scripts for steal a brainrot, the #1 Script. Includes speed and custom skins for
 
 
 
